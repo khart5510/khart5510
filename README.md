@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @khart5510
 - 👀 I’m interested in corpo and cypto
-- 🌱 I’m currently pursuing btech chemical enginering
+- 🌱 I’m currently pursuing btech chemical engineering
 - 📫 How to reach me khart5510@gmail.com
 - 😄 Pronouns: stright man (he)
 - ⚡ Fun fact: my humour is darker then kids in nigeria
